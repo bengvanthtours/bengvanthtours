@@ -26,4 +26,4 @@ Några citat från tidigare lyckade resor:
 
 * [Vanligt förekommande frågor](faq.md)
 
-* [Faktoider, lägner och annat trams](faktoid.md)
+* [Faktoider, lögner och annat trams](faktoid.md)
