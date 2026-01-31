@@ -24,6 +24,6 @@ Svar: Jajamensan, det har vi.
 
 Svar: En ekorre med blå träningsoverall. Kom igen, bättre kan ni.
 
-**Fråga: Hur kan ni ha en vanligt förekommande frågor sektion på er site om man inte kan få tag på er för att ställa frågor?**
+**Fråga: Hur kan ni ha en "Vanligt förekommande frågor"-sektion på er site om man inte kan få tag på er för att ställa frågor?**
 
 Svar: Ähh, hmmm, bra fråga - vi får återkomma...
