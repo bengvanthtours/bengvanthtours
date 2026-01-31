@@ -4,9 +4,9 @@ title: Här kommer en handfull reseråd
 
 # Vad bör man aldrig glömma att ta med sig på semester
 
-* **Kreditkort** - När allt annat strular så har man täckning
+* **Kreditkort** - När allt annat strular så har man i alla fall täckning
 * **Debitkort** - kan man också ta med sig för att visa att man minsann har mer än ett kort
-* **kamera** - är du från stenåldern, det räcker väl med telefonen, eller?
+* **kamera** - är du från stenåldern, eller? Det räcker väl med telefonen?
 * **Strumpor** - fast inte i sandalerna
 * **unik handduk att ta med till stranden eller poolen** - gärna med en ful företagslogga
 * **gott humör** - för att vi älskar klyschor
