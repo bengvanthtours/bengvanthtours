@@ -9,7 +9,7 @@ Många har uppmärksammat att vattnet i Grekland är torrt. När du har duschat 
 
 ### Valuta för pengarna
 Redan på 70-talet formulerade Magnus, Brasse och Eva tesen att fem myror är fler än fyra elefanter. Nu har ett forskarlag från universitetet i Milano bekräftat tesen efter 10 års undersökningar. 
-"Ett förbluffande resultat" säger forskningledaren Massimo Formica, som fortsätter "Detta är forskning på riktigt hög nivå". 
+"Ett förbluffande resultat" säger forskningsledaren Massimo Formica, som fortsätter "Detta är forskning på riktigt hög nivå". 
 
 ###  Big in Japan
 Alla som fått för mycket wasabi tillsammans med sushin, vet att det kan stinga rejält i näsan. Visste ni att i Japan har man inget ord för för stark mat. De säger istället "Dimman lätter och jag med den".
